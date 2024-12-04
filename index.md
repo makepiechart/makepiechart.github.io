@@ -65,6 +65,18 @@ We are continuously improving and updating our tools with planned features inclu
 
 If you have any questions or suggestions, please don't hesitate to contact us. We look forward to hearing your feedback and working together to create better data visualization tools.
 
+## Links 
+https://felo.ai/search/3vuRPQxvECV4iJgSNxDHXA
+https://link.csdn.net/?target=https%3A%2F%2Fmakepiechart.com
+https://jump2.bdimg.com/safecheck/index?url=rN3wPs8te/pqIQ7y6Lr/HI679Sw85K9A7tQJVgBrXauar4XG2afJpWGDM3ltmSVL+/kkw/Fawzl7d9nYYi84tJonqtBY/opzzFag5piepSMxoMWWW8oi/N58nr+kAVkbdj2oeHoEzTI= 
+https://www.youtube.com/redirect?q=https%3A%2F%2Fmakepiechart.com
+https://developers.weixin.qq.com/community/middlepage/href?href=https%3A%2F%2Fmakepiechart.com
+https://www.douban.com/link2/?url=https%3A%2F%2Fmakepiechart.com 
+http://www.360doc.com/showweb/0/0/1141085246.aspx
+https://m.sogou.com/web/tc?url=https%3A%2F%2Fmakepiechart.com
+https://link.uisdc.com/?redirect=https%3A%2F%2Fmakepiechart.com
+https://leetcode.cn/link/?target=https%3A%2F%2Fmakepiechart.com
+https://steamcommunity.com/linkfilter/?u=https%3A%2F%2Fmakepiechart.com
 
 ## Media Reports
 ### A. Zhihu
@@ -132,7 +144,10 @@ If you have any questions or suggestions, please don't hesitate to contact us. W
 - [Introducing MakePieChart.com - Baidu Tieba](https://tieba.baidu.com/mo/q/checkurl?url=https%3A%2F%2Fmakepiechart.com)
 - [Introducing MakePieChart.com - YY.com](http://redir.yy.duowan.com/warning.php?url=https%3A%2F%2Fmakepiechart.com)
 
+
 ---
 
 Let's explore the endless possibilities of data visualization together! 
 [MakePieChart.com](https://makepiechart.com)
+
+
